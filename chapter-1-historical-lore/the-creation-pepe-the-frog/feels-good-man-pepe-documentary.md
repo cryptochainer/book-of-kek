@@ -18,5 +18,26 @@ It was also described as the "most important political film of 2020" by Vox Medi
 "Feels Good Man" movie trailer
 {% endembed %}
 
-So Cryptochainer's cards were prominetly featured in the doceumentary, at several key points.  Now not only were several digital Rare Pepes feaured, so were some very rare physical cards.
+So Cryptochainer's cards were prominently featured in the doceumentary, at several key points.  Not not only were several digital Rare Pepes feaured, so were some very rare physical cards. 
+
+http://cryptochainer.com/images/Feels_Good_Man_PM_Wallet.jpg
+
+And two of his cards, were shown in datail, with one of them having its text read aloud.  
+
+http://cryptochainer.com/images/Feels_Good_Man_TRUMPEPE_1.jpg
+
+And zoomed in on:
+
+
+http://cryptochainer.com/images/Feels_Good_Man_TRUMPEPE_2.jpg
+
+
+At one point, we see some of the phyisical Rare Pepe cards, spread out, on a tabl4, and at another point, we see then held in the hands of Pepecash Millionaire.
+
+http://cryptochainer.com/images/Feels_Good_Man_PHYSICAL_CARDS.jpg
+
+http://cryptochainer.com/images/Feels_Good_Man_PHYSICAL_CARDS_2.jpg
+
+
+
 
