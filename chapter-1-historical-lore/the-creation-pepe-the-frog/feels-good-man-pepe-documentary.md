@@ -20,7 +20,7 @@ It was also described as the "most important political film of 2020" by Vox Medi
 
 So Cryptochainer's cards were prominently featured in the doceumentary, at several key points.  Not not only were several digital Rare Pepes feaured, so were some very rare physical cards. 
 
-http://cryptochainer.com/images/Feels_Good_Man_PM_Wallet.jpg
+{% embed url="http://cryptochainer.com/images/Feels_Good_Man_PM_Wallet.jpg" %}
 
 And two of his cards, were shown in datail, with one of them having its text read aloud.  
 
