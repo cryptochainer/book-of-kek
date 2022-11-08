@@ -17,3 +17,6 @@ It was also described as the "most important political film of 2020" by Vox Medi
 {% embed url="https://www.youtube.com/watch?v=ZEiqZWw5vYs" %}
 "Feels Good Man" movie trailer
 {% endembed %}
+
+So Cryptochainer's cards were prominetly featured in the doceumentary, at several key points.  Now not only were several digital Rare Pepes feaured, so were some very rare physical cards.
+
